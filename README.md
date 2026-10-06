@@ -1,0 +1,2 @@
+# premium-overlay-inlay-001-overlay-channel-inlay-silver
+Drowning in scattered notes about overlay techniques, channel depths, and inlay specifications? The Overlay &amp; Channel Inlay Silversmith Hub centralizes everything you need to execute complex metalwork—organized, searchable, and ready when inspiration strikes.  This Notion template transforms how you document, reference, and scale your overlay-inlay
